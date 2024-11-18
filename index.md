@@ -9,5 +9,5 @@
 ### Life
 
 * Don't deflect when receiving a compliment; say thank you.
-* Take the weekend off; do something that's nothing to do with work.
-* Be aware of the value of time. Time is _expensive_.
+* It's okay the weekend off and do something that's nothing to do with work.
+* Be aware of the value of time as it's _expensive_.
