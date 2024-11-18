@@ -4,6 +4,7 @@
 ### Work
 
 * Have a go-to-market strategy before building the product.
+* Don't undervalue your work. Charge more.
 
 ### Life
 
